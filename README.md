@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @Kri-M-Pie<br>👀 I’m interested in different shits from 3D rendering to ML I wanna explore all<br>🌱 I’m currently learning everything that plagues my interest<br>📫 Email: krishna@availclouds.com, krishnanishad977@gmail.com
+👋 Hi, I’m @Krishna <br>👀 I’m interested in different shits from 3D rendering to ML I wanna explore all<br>🌱 I’m currently learning everything that plagues my interest<br>📫 Email: krishna@availclouds.com, krishnanishad977@gmail.com
 
 
 ## 🌐 Socials:
